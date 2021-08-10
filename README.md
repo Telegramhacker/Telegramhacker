@@ -22,7 +22,9 @@ How to hack telegram channel
 
 How to hack telegram group
 
+Hijack any telegram channel
 
+Hijack any telegram account
 
 
 
